@@ -1,1 +1,1 @@
-💞️ Gabja Salawasna
+💞️ Bagja Salawasna
